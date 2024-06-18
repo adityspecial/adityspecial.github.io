@@ -1,1 +1,1 @@
-# adityspecial.github.io
+you can use this to write a blog
